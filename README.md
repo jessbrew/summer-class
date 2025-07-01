@@ -5,3 +5,5 @@ Testing git in summer!
 - yay stuff
 - Amos Ebeling
 - O poor unfortunate souls
+- school yay
+- Drew
