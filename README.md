@@ -4,6 +4,8 @@ Testing git in summer!
 - Lots of homework
 - yay stuff
 - Amos Ebeling
-- O poor unfortunate souls
+- O' poor unfortunate souls
 - school yay
 - Drew
+- Hello
+- I'm tired :(
